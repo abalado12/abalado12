@@ -1,0 +1,4 @@
+-Ola, sou Gustavo ou Abalado
+-Sonho em trabalhar com programaçao
+-Estudante de ads na FMP(Faculdade Municipal da Palhoça)
+-Busco me aprimorar
